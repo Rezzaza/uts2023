@@ -1305,3 +1305,12 @@
     -->
   </body>
 </html>
+![Vanamo_Logo](https://github.com/Rezzaza/uts2023/assets/147264669/ccd5d4ec-8ff2-49a8-ab66-4d5280be8d45)
+![l7](https://github.com/Rezzaza/uts2023/assets/147264669/f69e11bb-1dc7-4f80-ac1c-32d642a27d9e)
+![l6](https://github.com/Rezzaza/uts2023/assets/147264669/edbb0f35-c0c1-47b4-ab6f-b109c040c520)
+![l5](https://github.com/Rezzaza/uts2023/assets/147264669/f7be175d-0933-45af-889d-d9af5b6cfd85)
+![l4](https://github.com/Rezzaza/uts2023/assets/147264669/ca4375e1-a3c4-4270-895f-ae28231da2dc)
+![l3](https://github.com/Rezzaza/uts2023/assets/147264669/07bb8924-6562-46c3-b14a-5d3275190939)
+![l2](https://github.com/Rezzaza/uts2023/assets/147264669/8b956f57-8f79-4da0-8f4e-b3c7b5b96258)
+![l1](https://github.com/Rezzaza/uts2023/assets/147264669/e6059b6c-6fd1-4ff0-9cab-15a1e4a9e3c7)
+![alfa](https://github.com/Rezzaza/uts2023/assets/147264669/4289e09a-dd74-493d-b0f0-1653f0cb82bd)
